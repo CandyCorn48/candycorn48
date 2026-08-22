@@ -1,16 +1,18 @@
-## Hi there 👋
+<p align="center">
+<img src="https://cdn.phototourl.com/free/2026-08-22-36a9e824-7225-482f-b32e-74789979fdcb.jpg" alt="happy colors" width="95%">
 
-<!--
-**CandyCorn48/candycorn48** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<p align="center">
+<img src="https://cdn.phototourl.com/free/2026-08-22-00e19ec5-d76a-4569-b520-e0d790870338.gif" alt="i hate coding bro" width="100%">
 
-Here are some ideas to get you started:
+<p align="center">
+<img src="https://cdn.phototourl.com/free/2026-08-22-14537585-6d74-4d2b-a5d6-ca82a6b90aa8.jpg" alt="four two x" width="75%">
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center">
+<img src="https://cdn.phototourl.com/member/2026-08-22-e55291b4-1c3e-4808-8da9-895b51355017.gif" alt="stamp" width="30%"> <img src="https://cdn.phototourl.com/member/2026-08-22-987504d0-adbd-49c5-ba0e-5a2cd2b87068.gif" alt="stamp" width="30%"> <img src="https://cdn.phototourl.com/member/2026-08-22-6e145c29-6441-478b-8451-7236763c0f97.gif" alt="stamp" width="30%">
+<div align="center">
+  
+ <img src="https://cdn.phototourl.com/member/2026-08-22-92d14bb7-9308-45cc-9458-928add936714.png" alt="usahana" width="30%"> [SIGN MY ATA!!!!!!](https://guineapigsrkewl.atabook.org/)
+<p align="center">
+<img src="https://cdn.phototourl.com/member/2026-08-22-ef06f244-2bc2-47e8-a7cd-70cdd1faddbb.png" alt="wat r these" width="100%">
+<p align="left">
+<img src="https://cdn.phototourl.com/member/2026-08-22-f84cfa3f-908c-420f-9a14-0bc7521589fb.png" alt="worm" width="25%"> why is green here
