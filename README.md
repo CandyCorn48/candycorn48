@@ -13,7 +13,7 @@
 <img src="https://cdn.phototourl.com/member/2026-08-22-e55291b4-1c3e-4808-8da9-895b51355017.gif" alt="stamp" width="30%"> <img src="https://cdn.phototourl.com/member/2026-08-22-987504d0-adbd-49c5-ba0e-5a2cd2b87068.gif" alt="stamp" width="30%"> <img src="https://cdn.phototourl.com/member/2026-08-22-6e145c29-6441-478b-8451-7236763c0f97.gif" alt="stamp" width="30%">
 <div align="center">
 
-  # [ SIGN MY ATA!!!!!!👀](https://guineapigsrkewl.atabook.org/)
+  # [ mmmm im thinking to put something else for link](haha)
 <p align="center">
 <img src="https://cdn.phototourl.com/member/2026-08-22-ef06f244-2bc2-47e8-a7cd-70cdd1faddbb.png" alt="wat r these" width="100%">
 <p align="left">
