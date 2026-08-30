@@ -16,7 +16,6 @@
   ## IM THE BIGGEST TWOFOURX AND YAOI FAN ON EARTH!!!!!😳😳
 <div align="center">
     
-  ## [SIGN MY ATA!!!!!](https://guineapigsrkewl.atabook.org/)
   
 <p align="center">
 <img src="https://cdn.phototourl.com/member/2026-08-22-ef06f244-2bc2-47e8-a7cd-70cdd1faddbb.png" alt="wat r these" width="100%">
