@@ -14,7 +14,7 @@
 
 <div align="center">
 
-  ## [STRAWPAGE FOF MORE INFO ABOUT ME👀](https://iheartcheesecake.straw.page)
+  ## [STRAWPAGE FOR MORE INFO ABOUT ME👀](https://iheartcheesecake.straw.page)
   
 <p align="center">
 <img src="https://cdn.phototourl.com/member/2026-08-22-ef06f244-2bc2-47e8-a7cd-70cdd1faddbb.png" alt="wat r these" width="100%">
